@@ -1,7 +1,3 @@
-
-<div align="center">
-   <img height="200" src="![Uploading IMG_8764.jpeg…]()" />
-</div>
 <h2 align="center"> 简介 </h2>
 哈喽～我是陈辰颖，但你可以叫我mei，和我的英文名是kim/kimmy，随便叫哪个都可以，我超喜欢昵称的！(≧ヮ≦) 💕
 
