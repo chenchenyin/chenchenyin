@@ -6,4 +6,4 @@
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬
 
 <h4 align="center"> fandoms </h4>
-jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,devil may cry,cookie run: kingdom,honkai stair rail,genshin impact,madoka magica,gravity falls,project sekai,frieren,apothecary diaries,sakamoto days,saiki k,dandadan,squid game,one piece,attack on titan,boochi the rock,mobpsycho100,hunterxhunter,one punch man, avatar the last airbender,the legend of korra,twawog,a silent voice,blue lock,all of us are dead,spyxfamily,ouran high school host club,bleach,true beauty,detective conan,jurassic park, invincible,fnf,pgr,arknights
+jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,attack on titan,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive.
