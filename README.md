@@ -7,4 +7,6 @@
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
 <h4 align="center"> DO NOT INTERACT IF YOU: </h4>
-不喜欢或不尊重我的朋友、支持厌恶女性、性别歧视、性别歧视、童癖、性化禁止人、关于🍇的笑话，敏感的人等。
+支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
+
+支持、参与、容忍或证明上述任何行为
