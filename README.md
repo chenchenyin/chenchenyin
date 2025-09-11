@@ -8,10 +8,10 @@
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
-<h4 align="center"> DO NOT INTERACT IF YOU: </h4>
+<h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
 
-<h4 align="center"> 我最喜欢的cp: </h4>
+<h4 align="center"> 我最喜欢的cp </h4>
 gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,tododeku,todomomo,,kamijirou,kirimina,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,robinhill,danmarch,angelfox,kafblade,ruantio,marchstelle,caprisun,pixelshark,wriorinde,hailou,chioyato,jealuc,cylou,guili,madohomu,kyosaya,ruinene,mizuena,anhane,akitoya,lenku,mokarun,saiteru,jinmao,eremika,bokita,ryokita,frobin,yamatace,mizisua,hyuluka,ivantill,kataang,korrasami,sukka,bopal,maiko,penball,carwin,loidxyor,damianya,ichihime,renruki,markeve(我对这个又爱又恨),bfxgf.
 
 是的，我知道大部分都是异性恋cp。但这并不意味着我恐同！！
