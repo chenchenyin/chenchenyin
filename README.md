@@ -18,3 +18,6 @@ gojohime,yutamaki,nanago,mechamiwa,itazawa,obamitsu,tankana,zennezu,inoaoi,giyus
 
 是的，我知道大部分都是异性恋cp。但这并不意味着我恐同！！
 
+<h4 align="center"> 我在哪里可以找到你？ </h4>
+
+
