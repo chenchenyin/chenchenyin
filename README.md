@@ -5,3 +5,6 @@
 
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
+
+<h4 align="center"> DO NOT INTERACT IF YOU: </h4>
+不喜欢或不尊重我的朋友、支持厌恶女性、性别歧视、性别歧视、童癖、性化禁止人、关于🍇的笑话，敏感的人等。
