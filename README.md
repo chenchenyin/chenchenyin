@@ -9,4 +9,8 @@ jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundat
 <h4 align="center"> DO NOT INTERACT IF YOU: </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
 
+
 支持、参与、容忍或证明上述任何行为
+
+<h4 align="center"> 我最喜欢的cp: </h4>
+gojohime,yutamaki,nanago,mechamiwa,itazawa,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,bakudeku,jirokami,
