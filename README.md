@@ -20,3 +20,6 @@ gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,obamitsu,tankana,zennezu,inoao
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠 （请随意 c+h 我啦～就算我和朋友在一起也没关系，依然欢迎你)
 
 
+想了解我多一点可以去看看我的SP
+
+
