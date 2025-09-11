@@ -5,8 +5,7 @@
 
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬 ( ๑ơ ₃ ơ) 我会说英语啦，不过不是很厉害。所以你不用专门翻译和我聊，谷歌翻译有时候也翻得怪怪的ww
 
-Для моих русских друзей :
-
+Для моих русских друзей: (cardd.co link)
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
