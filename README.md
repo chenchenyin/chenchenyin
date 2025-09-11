@@ -8,4 +8,4 @@ jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundat
 
 ‹div align="center">
 </div>
-‹img src="https://visitor-badge.laobi.icu/badge?page_id=froglinggg.froglinggg&right_color=darkblue&left_text=litres%20of%20beer:"
+‹img src="https://visitor-badge.laobi.icu/badge?page_id=kimm.yiu&right_color=darkblue&left_text=litres%20of%20beer:"
