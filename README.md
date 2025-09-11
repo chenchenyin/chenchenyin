@@ -13,4 +13,8 @@ jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundat
 支持、参与、容忍或证明上述任何行为
 
 <h4 align="center"> 我最喜欢的cp: </h4>
-gojohime,yutamaki,nanago,mechamiwa,itazawa,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,bakudeku,jirokami,
+gojohime,yutamaki,nanago,mechamiwa,itazawa,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,bakudeku,jirokami,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar
+
+
+是的，我知道大部分都是异性恋cp。但这并不意味着我恐同。
+
