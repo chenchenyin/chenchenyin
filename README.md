@@ -6,14 +6,13 @@
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬 ( ๑ơ ₃ ơ) 我会说英语啦，不过不是很厉害。所以你不用专门翻译和我聊，谷歌翻译有时候也翻得怪怪的ww
 
 <h4 align="center"> FANDOMS </h4>
-jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
+jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
 <h4 align="center"> DO NOT INTERACT IF YOU: </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
 
 <h4 align="center"> 我最喜欢的cp: </h4>
-gojohime,yutamaki,nanago,mechamiwa,itazawa,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,bakudeku,jirokami,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,mokarun,saiteru,jinmao,eremika,bokita,ryokita,
-
+gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,tododeku,todomomo,,kamijirou,kirimina,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,robinhill,danmarch,angelfox,kafblade,ruantio,marchstelle,caprisun,pixelshark,wriorinde,hailou,chioyato,jealuc,cylou,guili,madohomu,kyosaya,ruinene,mizuena,anhane,akitoya,lenku,mokarun,saiteru,jinmao,eremika,bokita,ryokita,frobin,yamatace,mizisua,hyuluka,ivantill,kataang,korrasami,sukka,bopal,maiko,penball,carwin,loidxyor,damianya,ichihime,renruki,markeve(我对这个又爱又恨),bfxgf.
 
 是的，我知道大部分都是异性恋cp。但这并不意味着我恐同！！
 
