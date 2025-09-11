@@ -5,3 +5,7 @@
 
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hunterxhunter, atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
+
+‹div align="center">
+</div>
+‹img src="https://visitor-badge.laobi.icu/badge?page_id=froglinggg.froglinggg&right_color=darkblue&left_text=litres%20of%20beer:"
