@@ -5,8 +5,8 @@
 
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬 ( ๑ơ ₃ ơ) 我会说英语啦，不过不是很厉害。所以你不用专门翻译和我聊，谷歌翻译有时候也翻得怪怪的ww
 
->**NOTICE** : For those who are english speakers or someone who is from different country, I would like to address something related to the word *'cp'*. No, it does not mean what you think it is. In china, 'cp' usually means **couple pairing (配对 / 情侣)**. It comes from the English word “couple”, and in Chinese internet slang it refers to: Romantic pairings in fiction (anime, dramas, novels, games, etc.) Fans “shipping” two characters (or sometimes two real-life people, like celebrities or idols).
-It doesn’t always mean they are an actual couple — it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)
+>**NOTICE** : *For those who are english speakers or someone who is from different country, I would like to address something related to the word *'cp'*. No, it does not mean what you think it is. In china, 'cp' usually means **couple pairing (配对 / 情侣)**. It comes from the English word “couple”, and in Chinese internet slang it refers to: Romantic pairings in fiction (anime, dramas, novels, games, etc.) Fans “shipping” two characters (or sometimes two real-life people, like celebrities or idols).
+It doesn’t always mean they are an actual couple — it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)*
 
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
