@@ -9,7 +9,7 @@
 It doesn’t always mean they are an actual couple — it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)*
 
 <h4 align="center"> BYI </h4>
-每次有人跟我聊天我都会超级开心。可是有时候我觉得自己好像说太多，有点丢脸。小时候我几乎没有朋友，所以完全没什么经验。现在在学校和网上都有很多朋友了，我还在慢慢习惯。我真的不想让别人觉得不舒服，也不想让别人觉得我很奇怪。
+每次有人跟我聊天我都会超级开心。可是有时候我觉得自己好像说太多，有点丢脸。小时候我几乎没有朋友，所以完全没什么经验。现在在学校和网上都有很多朋友了，我还在慢慢习惯。
 
 我都会尽力逗大家笑，虽然经常是我自己在屏幕后面笑得很厉害哈哈
 
@@ -22,7 +22,7 @@ jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundat
 <h4 align="center"> 我最喜欢的cp </h4>
 gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,sukugo(可能),obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,tododeku,todomomo,,kamijirou,kirimina,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,robinhill,danmarch,angelfox,kafblade,ruantio,marchstelle,caprisun,pixelshark,wriorinde,hailou,chioyato,jealuc,cylou,guili,madohomu,kyosaya,ruinene,mizuena,anhane,akitoya,lenku,mokarun,saiteru,jinmao,eremika,bokita,ryokita,frobin,yamatace,mizisua,hyuluka,ivantill,kataang,korrasami,sukka,bopal,maiko,penball,carwin,loidxyor,damianya,ichihime,renruki,markeve(我对这个又爱又恨),bfxgf,nagireo,kunigiri
 
-是的，我知道大部分都是异性恋cp。但这并不意味着我恐同！！
+是的，我知道大部分都是异性恋cp。但这并不意味着我恐同。
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！(除非我在和朋友一起)
