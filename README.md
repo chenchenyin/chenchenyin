@@ -19,10 +19,10 @@ It doesn’t always mean they are an actual couple — it can just be an imagine
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
 <h4 align="center"> 我最喜欢的cp </h4>
-gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,sukugo(可能),obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,tododeku,todomomo,,kamijirou,kirimina,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,robinhill,danmarch,angelfox,kafblade,ruantio,marchstelle,caprisun,pixelshark,wriorinde,hailou,chioyato,jealuc,cylou,guili,madohomu,kyosaya,ruinene,mizuena,anhane,akitoya,lenku,mokarun,saiteru,jinmao,eremika,bokita,ryokita,frobin,yamatace,mizisua,hyuluka,ivantill,kataang,korrasami,sukka,bopal,maiko,penball,carwin,loidxyor,damianya,ichihime,renruki,markeve(我对这个又爱又恨),bfxgf,nagireo,kunigiri
+gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,sukugo(可能),obamitsu,tankana,zennezu,inoaoi,giyushino/waterbug,sanekana,izuocha,tododeku,bakudeku,todomomo,,kamijirou,kirimina,seamoon,purelily,espressleine,mentzer,advenberry,almondlatte,darkmilk,mintcocoa,hollycacao,shadowsugar,robinhill,danmarch,angelfox,kafblade,ruantio,marchstelle,caprisun,pixelshark,wriorinde,hailou,chioyato,jealuc,cylou,guili,madohomu,kyosaya,ruinene,mizuena,anhane,lenku,mokarun,saiteru,jinmao,eremika,bokita,ryokita,frobin,yamatace,mizisua,hyuluka,ivantill,kataang,korrasami,sukka,bopal,maiko,penball,carwin,loidxyor,damianya,ichihime,renruki,markeve(我对这个又爱又恨),bfxgf,nagireo,kunigiri
 
 是的，我知道大部分都是异性恋cp。但这并不意味着我恐同。
-我其实不太会嗑啥cp啦😅，一般就专注剧情和角色本身～(除了五条姬)
+(我其实不太会嗑啥cp啦😅，一般就专注剧情和角色本身～(除了五条姬，我真的很喜欢)
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！(除非我在和朋友一起)
