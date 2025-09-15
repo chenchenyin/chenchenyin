@@ -9,7 +9,8 @@
 It doesn’t always mean they are an actual couple — it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)*
 
 <h4 align="center"> BYI </h4>
-每次有人跟我聊天我都会超级开心。可是有时候我觉得自己好像说太多，有点丢脸。有时候脾气有点急，其实就是因为有点压力大
+每次有人跟我聊天我都会超级开心。可是有时候我觉得自己好像说太多，有点丢脸。
+
 <h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
 
