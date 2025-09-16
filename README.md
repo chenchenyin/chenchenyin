@@ -1,5 +1,5 @@
                                      . ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
-<h4 align="center"> <img src="https://hits.sh/github.com/chenchenyin/hits.svg?label=%E6%88%91%E7%9A%84%E5%A5%B4%E9%9A%B6&extraCount=7263528391&color=79d2ff" /> </h4>
+<h4 align="center"> <img src="https://hits.sh/github.com/chenchenyin/hits.svg?label=%E6%88%91%E7%9A%84%E5%A5%B4%E9%9A%B6&extraCount=7263528391&color=79d2ff](https://hits.sh/github.com/chenchenyin.svg?label=%E8%96%AF%E6%9D%A1&extraCount=28475906&color=7ECDF6" /> </h4>
 </div>
 
 哈喽～我是陈辰颖，但你可以叫我mei，和我的英文名是kim/kimmy，随便叫哪个都可以，我超喜欢昵称的！(≧ヮ≦)
