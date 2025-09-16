@@ -16,7 +16,7 @@ It doesn’t always mean they are an actual couple — it can just be an imagine
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
 
-<h4 align="center"> 我最喜欢的cp </h4> (我目前最爱的fandom) **更多关于SP**
+<h4 align="center"> 我最喜欢的cp (我目前最爱的fandom) *更多关于SP* </h4>
 gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,sukugo(可能．．) 其实我也不太会嗑什么CP啦😅，一般就专注剧情和角色本身～
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
