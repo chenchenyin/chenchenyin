@@ -12,6 +12,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 <h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
+→ 别人怎么骂我我真的无所谓，就算有人用种族歧视或者政治方面的难听称呼，我也只会选择无视/屏蔽，不想惹麻烦。
 
 <h4 align="center"> FANDOMS </h4>
 jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
