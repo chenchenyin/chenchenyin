@@ -10,7 +10,7 @@
 It doesn’t always mean they are an actual couple, it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)*
 
 <h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
-支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、支持人工智能的人、proship、darkship 等行为或立场。
+支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、支持人工智能的人、无缘无故粗鲁的人（主要在英文服务器）、proship、darkship 等行为或立场。
 
 → 别人怎么骂我我真的无所谓，就算有人用种族歧视或者政治方面的难听称呼，我也只会选择无视/屏蔽，不想惹麻烦。如果你这么做的话，你就是个只会博眼球的小贱人🫤
 
