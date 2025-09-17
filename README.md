@@ -10,8 +10,6 @@
 >**NOTICE** : *For those who are english speakers or someone who is from different country, I would like to address something related to the word *'cp'*. No, it does not mean what you think it is. In china, 'cp' usually means **couple pairing (配对 / 情侣)**. It comes from the English word “couple”, and in Chinese internet slang it refers to: Romantic pairings in fiction (anime, dramas, novels, games, etc.) Fans “shipping” two characters (or sometimes two real-life people, like celebrities or idols).
 It doesn’t always mean they are an actual couple, it can just be an imagined or fan-supported pairing. (Thank you to the person that pointed this out, I didn't want to seem weird.)*
 
-<h4 align="center"> BYI </h4>
-
 <h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
 支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、厌恶我的兴趣、proship、darkship 等行为或立场。
 
