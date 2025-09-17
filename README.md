@@ -18,6 +18,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 <h4 align="center"> FANDOMS </h4>
 anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, invincibe, death note, frieren + 还有更多,我忘记了
 
+
 games: genshin impact, honkai: star rail, cookie: run kingdom, pjsk, devil may cry, needy streamer overload, tf2, fnaf, silent hill, fornite, minecraft, mariokart.
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
