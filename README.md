@@ -16,7 +16,9 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 → 别人怎么骂我我真的无所谓，就算有人用种族歧视或者政治方面的难听称呼，我也只会选择无视/屏蔽，不想惹麻烦。如果你这么做的话，你就是个只会博眼球的小贱人🫤
 
 <h4 align="center"> FANDOMS </h4>
-jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundation,tf2,dmc,fnaf,crk,honkai stair rail,genshin impact,madoka magica,pjsk,the apothecary diaries,saiki.k,dandadan,squid game,one piece,aot,boochi the rock,mobpsycho100,hxh,alnst,atla,tlok,twawog,a silent voice,blue lock,spyxfamily,bleach,jurassic park,invincible,fnf,pgr,arknights,blue archive. + 我有点忘记了
+anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, invincibe, death note, frieren + 还有更多,我忘记了
+
+games: genshin impact, honkai: star rail, cookie: run kingdom, pjsk, devil may cry, needy streamer overload, tf2, fnaf, silent hill, fornite, minecraft, mariokart.
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！
