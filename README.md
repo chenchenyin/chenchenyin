@@ -20,6 +20,6 @@ jujutsu kaisen,demon slayer,death note,my hero academia,chainsaw man,scp foundat
 gojohime,yutamaki,nanago,mechamiwa,itazawa,tomema,sukugo(可能．．) 其实我也不太会嗑什么CP啦😅，一般就专注剧情和角色本身～
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
-在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！(除非我在和朋友一起)
+在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！
 
 
