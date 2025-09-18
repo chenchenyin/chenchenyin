@@ -9,12 +9,8 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬 ( ๑ơ ₃ ơ) 我会说英语啦，不过不是很厉害。所以你不用专门翻译和我聊，谷歌翻译有时候也翻得怪怪的ww
 
-<h4 align="center"> 如果你符合下面这些情况，请不要和我互动 </h4>
-支持厌女、性别歧视、恋童、未成年人性化、关于🍇的玩笑、仇视宗教、仇华、仇外、犹太复国主义、不喜欢/不尊重我的朋友、无缘无故粗鲁的人（主要在英文服务器）、proship、darkship 等行为或立场。
-
 <h4 align="center"> FANDOMS </h4>
 anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, invincibe, death note, frieren + 还有更多,我忘记了
-
 
 games: genshin impact, honkai: star rail, cookie: run kingdom, pjsk, devil may cry, needy streamer overload, tf2, fnaf, silent hill, fortnite, minecraft, mariokart, blue archive, pgr.
 
