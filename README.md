@@ -15,7 +15,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 ➜ 
 
 
-➜
+➜ 如果外国朋友想跟我说中文的话，提前说一下哦～我不会繁体😂。虽然能看懂一点点，但还是不太懂，所以请用简体跟我说～
 
 
 ➜ 如果我说要熬夜千万别信我，我大概三分钟就能睡着。之前和朋友一起坐着的时候已经发生过好多次了XD。通常我都会闭上眼跟自己说‘就闭几秒’，结果下一秒就抱着手机睡着了pfft
