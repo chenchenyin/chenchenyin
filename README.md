@@ -14,14 +14,11 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 ➜ 
 
-
 ➜ If foreign friends want to speak Chinese with me, go ahead. I don't speak traditional Chinese. Although I can understand a little bit, I still don't understand much, so please speak to me in simplified Chinese. Many people think we speak traditional Chinese (most people in mainland China don't speak it).
-
 
 ➜ 
 
-
-➜
+➜ 
 
 <h4 align="center"> FANDOMS </h4>
 anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, invincibe, death note, frieren, transformers + 还有更多,我忘记了
