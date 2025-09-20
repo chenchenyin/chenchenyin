@@ -15,7 +15,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 ➜ 
 
 
-➜ 如果外国朋友想跟我说中文的话，提前说一下哦～我不会繁体。虽然能看懂一点点，但还是不太懂，所以请用简体跟我说～ 很多人认为我们会说繁体中文（中国大陆大部分地区不会说）
+➜ If foreign friends want to speak Chinese with me, go ahead. I don't speak traditional Chinese. Although I can understand a little bit, I still don't understand much, so please speak to me in simplified Chinese. Many people think we speak traditional Chinese (most people in mainland China don't speak it).
 
 
 ➜ 
