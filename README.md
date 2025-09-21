@@ -43,8 +43,6 @@ kdramas (currently watching): Bon Appétit, Your Majesty
 <h4 align="center"> 我在哪里可以找到你？ </h4>
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！
 
----
-
-[ata](https://meiwei.atabook.org/) [pronouns](https://zh.pronouns.page/@kimm.yiu)
+要是我一个人的话，谁都可以坐我旁边/抱抱我/躲在我后面，但我可能会掉线
 
 
