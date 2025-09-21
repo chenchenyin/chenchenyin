@@ -24,9 +24,12 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 ➜ 
 
 <h4 align="center"> FANDOMS </h4>
-anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, invincibe, death note, frieren, transformers + 还有更多,我忘记了
+anime/shows: jujutsu kaisen, chainsaw man, dandadan, the apotheracy diaries, my hero academia, demon slayer, naruto, one piece, spyxfamily, bleach, attack on titan, sakamoto days, saiki k, squid game, boochi the rock, mobpsycho100, hunterxhunter, one punch man, atla, tlok, a silent voice, blue lock, nezha, invincibe, death note, frieren, transformers + 还有更多,我忘记了
 
 games: genshin impact, honkai: star rail, cookie: run kingdom, pjsk, devil may cry, needy streamer overload, tf2, fnaf, silent hill, fortnite, minecraft, mariokart, blue archive, pgr.
+
+kdramas (currently watching): Bon Appétit, Your Majesty
+
 
 <h4 align="center"> 我在哪里可以找到你？ </h4>
 在英文、俄文、西语服务器里我一般都在咒术回战那边～不过在中文服的话，我大多是在出生点或者集市那边晃悠。 请随意 c+h 我啦～我随时可以联系！
