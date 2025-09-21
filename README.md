@@ -20,8 +20,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 ➜ I'm not the one who would usually interact first... because I'm a bit bad at starting conversations (ó﹏ò｡) and also afraid of disturbing you. I sometimes would try to make small talk but that would lead it to be awkward.. I think
 
-
-➜ I am not that shy of a person, I actually like talking, but I'm afraid if I talk too much I would say something weird because often I don't think before I speak. That would just lead me to embarass myself
+I am not that shy of a person, I actually like talking, but I'm afraid if I talk too much I would say something weird because often I don't think before I speak. That would just lead me to embarass myself
 
 I would love to listen to you yap about something！I'm a great listener, but a bad responder.
 
