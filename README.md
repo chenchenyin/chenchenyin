@@ -14,18 +14,13 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 <h4 align="center"> BYI </h4>
 
 
-➜ I AM A HUGE FAN OF GOJOHIME！！！！！！ NO.1 SHIPPER！！！！(Even if you don't like GojoHime, that is okay. Just don't argue with me that GojoHime doesn't make sense or is 'mid', everyone has their own opinions.)
+➜ 我是超大的GojoHime粉！！！！！No.1 磕子！！！！！！（就算你不喜欢也没关系，只要别来跟我吵说 GojoHime 没道理或者很“mid”就好～每个人都有自己的喜好嘛。）
 
 
-➜ If foreign friends want to speak Chinese with me, go ahead. But know that I don't speak traditional Chinese. Although I can understand a little bit, I still don't understand much, so please speak to me in simplified Chinese. Many people think we speak traditional Chinese, most mainland china don't.
+➜ 外国朋友想跟我说中文当然可以！ 只是要提前说一下，我不会繁体。虽然能看懂一点点，但大部分还是不懂～所以请用简体跟我说。很多人以为我们用繁体，其实大陆大多数人不会用的。
 
-
-➜ I'm not the one who would usually interact first... because I'm a bit bad at starting conversations (ó﹏ò｡) and also afraid of disturbing you. I sometimes would try to make small talk but that would lead it to be awkward.. I think
-
-I am not that shy of a person, I actually like talking, but I'm afraid if I talk too much I would say something weird because often I don't think before I speak. That would just lead me to embarass myself
-
-I would love to listen to you yap about something！I'm a great listener, but a bad responder. 
-
+➜ 我一般不会主动找人聊天…… 因为我不太会开头（ó﹏ò｡），也怕打扰到别人。有时候会想聊点小话题，但结果就会变得尴尬🫠。
+不过我很乐意听你分享！ 我是个很好的倾听者，就是回话不一定很好XD。
 
 ➜ 
 
