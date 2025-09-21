@@ -12,17 +12,17 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 <h4 align="center"> BYI </h4>
 
 
-➜ I AM A HUGE FAN OF GOJOHIME！！！！！！ NO.1 SHIPPER！！！！ (Even if you don't like GojoHime, that is okay. Just don't argue with me that GojoHime doesn't make sense or is 'mid', everyone has their own opinions.)
+➜ I AM A HUGE FAN OF GOJOHIME！！！！！！ NO.1 SHIPPER！！！！(Even if you don't like GojoHime, that is okay. Just don't argue with me that GojoHime doesn't make sense or is 'mid', everyone has their own opinions.)
 
 
-➜ If foreign friends want to speak Chinese with me, go ahead. But, I don't speak traditional Chinese. Although I can understand a little bit, I still don't understand much, so please speak to me in simplified Chinese. Many people think we speak traditional Chinese (most people in mainland China don't speak it).
+➜ If foreign friends want to speak Chinese with me, go ahead. But know that I don't speak traditional Chinese. Although I can understand a little bit, I still don't understand much, so please speak to me in simplified Chinese. Many people think we speak traditional Chinese, most mainland china don't.
 
 
 ➜ I'm not the one who would usually interact first... because I'm a bit bad at starting conversations (ó﹏ò｡) and also afraid of disturbing you. I sometimes would try to make small talk but that would lead it to be awkward.. I think
 
 I am not that shy of a person, I actually like talking, but I'm afraid if I talk too much I would say something weird because often I don't think before I speak. That would just lead me to embarass myself
 
-I would love to listen to you yap about something！I'm a great listener, but a bad responder.
+I would love to listen to you yap about something！I'm a great listener, but a bad responder. 
 
 
 ➜ 
