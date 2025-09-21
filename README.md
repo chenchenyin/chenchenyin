@@ -40,4 +40,5 @@ kdramas (currently watching): Bon Appétit, Your Majesty
 
 要是我一个人的话，谁都可以坐我旁边/抱抱我/躲在我后面，但我可能会掉线
 
+![Alt text]([https://example.com/myimage.png](https://cdn.discordapp.com/attachments/1220343200460308512/1419437157717774447/IMG_9191.jpg?ex=68d1c15e&is=68d06fde&hm=53be41bf60c5e416ae44a5c8f124708034a8cc3061cc092acb2daadb2c04e51f&))
 
