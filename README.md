@@ -14,7 +14,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 <h4 align="center"> BYI </h4>
 
 
-➜ 我是超大的GojoHime粉！！！！！No.1 磕子！！！！！！（就算你不喜欢也没关系，只要别来跟我吵说 GojoHime 没道理或者很“mid”就好～每个人都有自己的喜好嘛。）
+➜ 我是超大的GojoHime粉！！！！！NO.1 磕子！！！！！！（就算你不喜欢也没关系，只要别来跟我吵说 GojoHime 没道理或者很“mid”就好～每个人都有自己的喜好嘛。）
 
 
 ➜ 外国朋友想跟我说中文当然可以！ 只是要提前说一下，我不会繁体。虽然能看懂一点点，但大部分还是不懂～所以请用简体跟我说。很多人以为我们用繁体，其实大陆大多数人不会用的。
