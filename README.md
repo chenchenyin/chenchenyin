@@ -22,7 +22,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 ➜ 我不太会开头（ó﹏ò｡），也怕打扰到别人。有时候会想聊点小话题，但结果就会变得尴尬🫠。
 不过我很乐意听你分享！ 我是个很好的倾听者，就是回话不一定很好XD。
 
-➜ **PLEASE don't assume that I ship GoYuu because my friend wore a Yuuji skin and I wore a Gojo skin while we are sitting or cuddling, it makes me kinda uncomfortable that some of you think that way. I view Gojo and Yuuji in a father and son relationship, nothing else.**
+➜ **PLEASE don't assume that I ship GoYuu because my friend wore a Yuuji skin and I wore a Gojo skin while we are sitting or cuddling, it makes me kinda uncomfortable that some of you think that way. I view Gojo and Yuuji in a father and son relationship, nothing else.** I can't ask my friend to change into another skin, because ALL her skins are Yuuji, she likes Yuuji.
 
 ---
 
