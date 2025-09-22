@@ -26,6 +26,8 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 ➜ 我经常一有机会就开 6 7 的玩笑，嘿嘿
 
+➜ 你可能会看到我对某些人特别健谈，那是因为我跟他们真的很熟很放松～
+
 ---
 
 <h4 align="center"> FANDOMS </h4>
