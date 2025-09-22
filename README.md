@@ -26,6 +26,8 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 ➜ 我有时候会情绪突然变来变去，看当天的心情吧
 
+➜ 我经常一有机会就开 6 7 的玩笑，嘿嘿
+
 ---
 
 <h4 align="center"> FANDOMS </h4>
