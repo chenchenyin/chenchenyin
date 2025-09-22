@@ -9,6 +9,8 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 
 可以随时来跟我聊天～只是我不太擅长社交，面对新朋友时会有点害羞和尴尬 ( ๑ơ ₃ ơ) 我会说英语啦，不过不是很厉害。所以你不用专门翻译和我聊，谷歌翻译有时候也翻得怪怪的ww
 
+想了解我多一点可以去看看我的SP！
+
 ---
 
 <h4 align="center"> BYI </h4>
@@ -22,7 +24,7 @@ It doesn’t always mean they are an actual couple, it can just be an imagined o
 ➜ 我不太会开头（ó﹏ò｡），也怕打扰到别人。有时候会想聊点小话题，但结果就会变得尴尬🫠。
 不过我很乐意听你分享！ 我是个很好的倾听者，就是回话不一定很好XD。
 
-➜ 我有时候会情绪突然变来变去，看当天的心情吧～
+➜ 我有时候会情绪突然变来变去，看当天的心情吧
 
 ---
 
