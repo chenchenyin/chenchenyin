@@ -1,1 +1,2 @@
-![Chat Screenshot](/mnt/data/IMG_9471.jpeg)
+![image](/mnt/data/IMG_9471.jpeg)
+
