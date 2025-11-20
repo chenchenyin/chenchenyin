@@ -1,1 +1,1 @@
-im super supee supr supersupersupersupersupersuper super supersupersupersupersupersuprsupersiperiper sorry to all my friends/party memebers that have to deal with my shy awkward and weird perosnality
+README和strawpage都还在做，多久能完成我也不太确定，因为最近很忙，又有考试又有别的事！
