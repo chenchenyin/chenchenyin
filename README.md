@@ -1,1 +1,1 @@
-<img src="https://files.catbox.moe/kb4ze3.gif" />
+<img src="https://imgur.com/a/h7kn979" />
