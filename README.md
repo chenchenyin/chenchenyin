@@ -3,6 +3,6 @@
 </div>
 
 <div align="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-<div align="center"> hey⠀ ⠀ ,⠀ ⠀ hey⠀ ⠀ ,⠀ ⠀ hey⠀ ⠀ !⠀ ⠀ grovel⠀ ⠀ ,⠀ ⠀ human!!
+<div align="center"> 嘿⠀ ⠀ ,⠀ ⠀ 嘿⠀ ⠀ ,⠀ ⠀ 嘿⠀ ⠀ !⠀ ⠀ 跪下⠀ ⠀ ,⠀ ⠀ 人类！!!
 <div align="center">⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀
-<div align="center"> my⠀ ⠀ name⠀ ⠀ is⠀ ⠀ power!
+<div align="center"> 我⠀ ⠀ 叫⠀ ⠀ power!
